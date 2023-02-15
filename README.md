@@ -275,3 +275,18 @@ A curated list of all things anime - streaming/downloading/reading/tracking/foru
 * [manga.tokyo/](https://manga.tokyo/)
 * [otakuusamagazine.com](https://otakuusamagazine.com)
 * [shikimori.one](https://shikimori.one/) - Russian
+
+
+### Anime Wallpapers
+*[wallpapercave.com](https://wallpapercave.com/categories/anime)
+*[wallhaven.cc](https://wallhaven.cc/search?q=anime)
+*[wallhere.com](https://wallhere.com/en/wallpapers?q=anime)
+*[wallpapers-hub.art](https://wallpapers-hub.art/search?searchTerm=anime)
+*[wallpapersafari.com](https://wallpapersafari.com/search?q=anime)
+*[minitokyo.net/](http://www.minitokyo.net/)
+*[peakpx.com](https://www.peakpx.com/en/search?q=anime)
+*[wallpaperaccess.com](https://wallpaperaccess.com/search?q=anime)
+*[wallpaper.dog](https://wallpaper.dog/search?q=anime)
+*[wallpaperflare.com/](https://www.wallpaperflare.com/search?wallpaper=anime)
+*[wall.alphacoders.com](https://wall.alphacoders.com/by_category.php?id=3&name=Anime+Wallpapers)
+*[Reddit Thread](https://www.reddit.com/r/Animewallpaper/)
